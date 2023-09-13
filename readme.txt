@@ -1,1 +1,1 @@
-ns
+ya nichego ne sdelal)))
